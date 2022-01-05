@@ -1,0 +1,2 @@
+# coursehero
+分享所有从coursehero网站上下载过的文档，如您有需求代下载course hero文件请联系微信bbwxnly或邮箱coursehero110@gmail.com
